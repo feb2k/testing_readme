@@ -1,11 +1,11 @@
 hi disini ad kelas web
 
-Orangnya banyak, tempatnya dikumpul, di Sanur abis itu Jalan2 ke sanur XX
+Orangnya banyak, tempatnya dikumpul, di Kuta abis itu Jalan2 ke sanur XX
 aksdakjsldjaiajksdajljkw
-alsjdlakjwdja
+ksdlfkjporkpkpokpsokfpoepf
 asdlajsdja
 
 asldkajlsjkdlajkwda
-asdkajlkwjdajljda
+lkjljljlkjljoiokjwlkjelq
 aslkdjawjdlkajlkda
 asdkjasdalkwjdafioeuoi,asdajsdlkjlkajsd
